@@ -3,4 +3,4 @@
 Lel friend  sto cavendo cose dal telefono
 cosa succ???
 
-denis noob
+denis PRO
